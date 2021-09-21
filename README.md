@@ -1,0 +1,3 @@
+I am a full stack developer. I am a programmer with good knowledge of front-end and back-end techniques, have more than 10 years of experience in developing web applications. I have excellent design & coding skills, as well as an ability convert client requirements into exciting online applications. I love spending time on fixing little details and optimizing web apps.
+
+I understand the needs and goals of the organization/individual and can find ways to help them realize their objectives more efficiently. I care for your time and mine also. I'm flexible enough to adjust in your requirements ensuring you the quality work.
